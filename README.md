@@ -1,0 +1,2 @@
+# campus-mind
+yesss
